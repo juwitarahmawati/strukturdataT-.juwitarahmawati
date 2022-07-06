@@ -1,0 +1,2 @@
+# strukturdataT-.juwitarahmawati
+strukturdataT%.juwitarahmawati
